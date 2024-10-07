@@ -10,7 +10,7 @@
 
 ## 1 ui
 
-## peper en zout
+## peper en zout..
 
 ## 250 gr cherrytomaatjes
 
